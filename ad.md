@@ -11,10 +11,13 @@ We have:
   * Medium sized room $1240, forest view
 * One room available September 1st.
   * Small sized room $900, forrest view (no closet)
+
 We are:
 * AOK
+
 You are:
 * Yourself (hopefully)
+
 Open house:
 * this saturday (07/25/2015)
 * Maybe send an email too before you come if you have time
@@ -91,7 +94,7 @@ There's plenty of closet space as well for your fine silks and ray bans.
 
 #### The Squire's Boudoir
 
-Many squire's songs have been written for heroes of old in this inspirational space. Due to its excellent location, the squire's boudoir arguable receives the most light in the house. It also has an excellent closet, capable of holding all of your master's armor with room left still for a large trunk of ointments and other embrocations.
+Many squires' songs have been written for heroes of old in this inspirational space. Due to its excellent location, the squire's boudoir arguable receives the most light in the house. It also has an excellent closet, capable of holding all of your master's armor with room left still for a large trunk of ointments and other embrocations.
 
 #### The Intern's Quarters
 
@@ -100,14 +103,14 @@ Ah yes, in the fast-paced, ever-changing landscape of this modern error, what be
 ## About us
 
 ### Larthur
-I'm in my mid twenties, a pretty chill dude, and I moved to SF about a year ago. I like the outdoors, playing music, sports, and, most of all, I like making things. I work a pretty regular schedule, about 9-5 M-F and when I'm at home I usually just relax and work on my little projects. Personally, I'm not super into partying at my house, but, ironically, I really enjoy throwing really good house parties. I guess I just want their to be good energy with the occasional fiesta experience.
+I'm in my mid twenties, a pretty chill dude, and I moved to SF about a year ago. I like the outdoors, playing music, sports, and, most of all, I like making things. I work a pretty regular schedule, about 9-5 M-F and when I'm at home I usually just relax and work on my little projects. Personally, I'm not super into partying at my house, but, ironically, I really enjoy throwing really good house parties. I guess I just want there to be good energy with the occasional fiesta experience.
 
 ### Sydney
-What's up party people. My name is Sydney, though I have also before responded to Syd the Kid, Sunshine, and Gingaballs. I am a Bay Area native, and I have been living in various neighborhoods in San Francisco for the past four years. Living in the Presidio is toight!
+What's up party people.
 
-I'm pretty easy to live with. I'm not bothered by much. At my last place, I was one of seven housemates, which I really enjoyed. I believe that guidelines in the style of "we are allowed to hang out this much but also must maintain this level of distance" or "you are only allowed to be home or to go out this often," though well-intentioned, can actually be harmful. I found my relationships with the people in my last house to be simple in their lack of definition. We easily managed to create a caring community of independent individuals by having everyone do their own thing to whatever extreme that means for each person, drawing the line somewhere around "don't be a dick." We laughed a lot and never took ourselves too seriously. I'm really looking forward to living with more cool people and establishing a similar atmosphere.
+I've been living in bigger places with lots of people for a while now. I believe that guidelines in the style of "we are allowed to hang out this much but also must maintain this level of distance" or "you are only allowed to be home or to go out this often," though well-intentioned, can actually be harmful. I like my relationships with the people in my house to be simple in their lack of definition. We can easily create a caring community of independent individuals by having everyone do their own thing to whatever extreme that means for each person, drawing the line somewhere around "don't be a dick." I like it when my housemates and I can laugh together and not take everything (including ourselves) too seriously.
 
-On a personal level: I like music, a lot. Sometimes I even get paid to play it. My taste as a listener is pretty diverse. I also drive for Lyft, which is pretty fun. I like to yoga, and I like to dance. I like to lay in the sun. I like scenic viewpoints and traveling. I like humans and (most of) the things that we do and make and think about. I don't want to necessarily identify as a "Burner," but I do care very strongly about the celebration of individuality and spiritual freedom that comes with that particular desert party. I feel like this would otherwise end awkwardly, so as my final statement I would like to include a quote from the revered Kevin Gnapoor: "Don't let the haters stop you from doing your thang."
+About me as a human bean: if I were a bean, I would probably be the abandoned love child of a kidney bean and cannellini bean. I like music a lot and pay close attention to what rappers are up to via social media. I cook and bake frequently so there are goodies around (usually free of common allergens). I'm pretty into the fact that I live in a forest next to a beach. I work a few days a week at a restaurant. I have other interests too but will not list them here.
 
 ### J-RAD
 (copied from his "about" section on facebook)
