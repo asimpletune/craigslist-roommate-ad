@@ -10,13 +10,13 @@ We have:
   * Large sized room $1610, bay view
   * Medium sized room $1240, forest view
 * One room available September 1st.
-  * Small sized room $900, forrest view
+  * Small sized room $900, forrest view (no closet)
 We are:
 * AOK
 You are:
 * Yourself (hopefully)
 Open house:
-* this saturday (08/25/2015)
+* this saturday (07/25/2015)
 * Maybe send an email too before you come if you have time
 
 Also, this place will go very quickly so please keep that in mind.
@@ -54,7 +54,7 @@ The house has 3 floors, a basement, and a garage:
 
 ### Second floor Bathroom
 
-There are 4 bathrooms in the house. This is one of them. No, you don't have to share this. I just wanted to show it to you. The others are equally nice.
+There are 4 bathrooms in the house. This is one of them. No, you don't have to use this. I just wanted to show it to you. The others are equally nice. We all share, and there has never been a shortage of bathrooms.
 
 ### Common areas of note
 The house has a lot of space and really beautiful commons. You have to see it to fully appreciate it but here's a preview.
@@ -100,8 +100,6 @@ Ah yes, in the fast-paced, ever-changing landscape of this modern error, what be
 ## About us
 
 ### Larthur
-I had been looking for a place in SF for a long time and I was eventually completely fed up with the hunt. Every place I looked at was either insulting or snatched away by someone else who was there first. For a while it started to feel like the only way you can find a decent place, at a reasonable price, in a safe neighborhood, with a livable amount of space, and non-insane landlords/roommates was to just be lucky. Then I realized that I could make my own luck.
-
 I'm in my mid twenties, a pretty chill dude, and I moved to SF about a year ago. I like the outdoors, playing music, sports, and, most of all, I like making things. I work a pretty regular schedule, about 9-5 M-F and when I'm at home I usually just relax and work on my little projects. Personally, I'm not super into partying at my house, but, ironically, I really enjoy throwing really good house parties. I guess I just want their to be good energy with the occasional fiesta experience.
 
 ### Sydney
