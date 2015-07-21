@@ -125,11 +125,18 @@ Ask for Jared's address
 Ask for Jared's birthday
 Ask for Jared's name pronunciation
 
+### birds
+There're some birds living in the backyard. You have to be cool with them.
+
 ## About you
 
 Be yourself! It can be so uninviting when you read these ads and people are all like "You need to be in this field and have this gender and these interests and hang out all the time or keep to yourself and you can't use this room etc..." No. I hate that. What I care about is that you're open minded and that's about it. I'm not trying to create the master race here. I'd much rather just let individual people's own personalities mix, and if an issue comes up, then we settle it. So part of being open minded is being communicative too. Basically, I don't want to control the experience. Instead, I want to be like a gardner: let the experience grow, but keep an eye for any weeds (drama queens, emotional vampires, close-mindedness, etc...)
 
 Other than that, just be you :)
+
+### Things you have to be ok with
+* There's a piano in the house.
+* Talking
 
 ## What's next?
 
