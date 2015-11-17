@@ -1,16 +1,12 @@
 # Officer's house in the Presidio with "pretty" cool people
 Hey you, glad you found this ad. My name is Larthur and I live at the house.
 
-It's that time of year where beaver tails are thumping, birds be chirping, and people come and go. Sadly, our friends are moving to greener pastures, but what luck you have! This is a really lovely place, and we're all really happy, so we hope you like it as much as we do.
+It's that time of year where beaver tails are thumping, birds be chirping, and people come and go. Sadly, one of our friends is moving out, on to greener pastures, but what luck you have! This is a really lovely place, and we're all really happy, so we hope you like it as much as we do.
 
 **tl;dr**
 All the rooms are super nice, the house is amazing, and we're "ok".
 We have:
-* 2 rooms available as early as August 1st
-  * Large sized room $1610, bay view
-  * Medium sized room $1240, forest view
-* One room available September 1st.
-  * Small sized room $900, forrest view (no closet)
+* One extra large room available January 1st.
 
 We are:
 * AOK
@@ -19,8 +15,7 @@ You are:
 * Yourself (hopefully)
 
 Open house:
-* this saturday (07/25/2015)
-* Maybe send an email too before you come if you have time
+* TBD - email to schedule a viewing
 
 Also, this place will go very quickly so please keep that in mind.
 
@@ -82,6 +77,14 @@ It's like the living room but without as nice furniture. It also has table with 
 
 This is a major chill zone. We have two of these mid-centch sofas and we chill hard here. The weather's almost always nice so this is a great place to chill.
 
+#### Cinema
+
+We have an amazing movie theater.
+
+#### Ping-pong
+
+We play everyday and everyone's pretty good. 
+
 ### Rooms available
 
 All of rooms in the house are equally nice, seriously. The only real difference is price, for which you get space in exchange. Here's some extra info for your perusal. There are no pictures, but as you can imagine there are walls, windows and hardwood floor. They look like the rest of the house except smaller...
@@ -91,14 +94,6 @@ All of rooms in the house are equally nice, seriously. The only real difference 
 In this room, the viceroy can ponder the world, as you stroke your beard/pony tail. The is the largest room available and you will find much wisdom to be found, as you gaze out your bay facing window from within this stately corner room. Or if you tire of the sea, you can train your eyes on our sideyard, which is next to a highway (no, we don't mind. It's not that bad and it keeps the beasts at bay).
 
 There's plenty of closet space as well for your fine silks and ray bans.
-
-#### The Squire's Boudoir
-
-Many squires' songs have been written for heroes of old in this inspirational space. Due to its excellent location, the squire's boudoir arguable receives the most light in the house. It also has an excellent closet, capable of holding all of your master's armor with room left still for a large trunk of ointments and other embrocations.
-
-#### The Intern's Quarters
-
-Ah yes, in the fast-paced, ever-changing landscape of this modern error, what better place to get a start of this brave new world than in the intern's quarters?
 
 ## About us
 
@@ -141,11 +136,11 @@ Other than that, just be you :)
 
 ## What's next?
 
-We're going to have an open house this Saturday July 25th, 2015. It would be cool if you could write us an email telling us whatever you think is important so we have a chance to read up on you before you come, but you can also just come.
+We're going to have an open house when it gets closer to the deadline. It would be cool if you could write us an email telling us whatever you think is important so we have a chance to read up on you before you come, but you can also just come.
 
 ## FAQ
 Do you allow couples:
-- Probably not, but maybe... best to try any way but don't get your hopes up.
+- Maybe... best to try any way but don't get your hopes up.
 
 Can I bring my pet:
-- Also, probably not, sorry, however also maybe... maybe bring your pet to the open house.
+- Probably not, sorry, however also maybe... maybe bring your pet to the open house.
