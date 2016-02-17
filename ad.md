@@ -1,12 +1,12 @@
 # Officer's house in the Presidio with "pretty" cool people
 Hey you, glad you found this ad. My name is Larthur and I live at the house.
 
-It's that time of year where beaver tails are thumping, birds be chirping, and people come and go. Sadly, one of our friends is moving out, on to greener pastures, but what luck you have! This is a really lovely place, and we're all really happy, so we hope you like it as much as we do.
+It's that time of year where beaver tails are thumping, birds be chirping, and people come and go. Sadly, my roommate and I are moving out of our palatial room, on to more modest accommodations in the house, but what luck you have! This is a really lovely place, and we're all really happy, so we hope you like it as much as we do.
 
 **tl;dr**
-All the rooms are super nice, the house is amazing, and we're "ok".
+This room is the granddaddy of them all, the house is amazing, and we're "ok".
 We have:
-* One extra large room available January 1st.
+* One extra-extra large room available March 1st.
 
 We are:
 * AOK
@@ -22,7 +22,7 @@ Also, this place will go very quickly so please keep that in mind.
 **Enhanced version of ad:**
 
 ## The place:
-The Presidio is a former military base/mission turned national park. Located at the at the foot of the Golden Gate bridge in San Francisco, the Presidio is one of the few places you can live in the city, where it doesn't feel like you're living in the city.
+The Presidio is a former military base/mission turned national park. Located at the at the foot of the Golden Gate bridge in San Francisco, the Presidio is one of the few places you can live in the city, where it doesn't feel like you're living in the city. Imagine beverly hills country club meets redwood tree forests, all bordered by rocky cliffs crumbling into sandy beaches by the ocean.
 
 ### Blueprint
 The house has 3 floors, a basement, and a garage:
@@ -83,17 +83,17 @@ We have an amazing movie theater.
 
 #### Ping-pong
 
-We play everyday and everyone's pretty good. 
+We play everyday and everyone's pretty good.
 
 ### Rooms available
 
 All of rooms in the house are equally nice, seriously. The only real difference is price, for which you get space in exchange. Here's some extra info for your perusal. There are no pictures, but as you can imagine there are walls, windows and hardwood floor. They look like the rest of the house except smaller...
 
-#### The Viceroy's Chamber
+#### The Sultan's Suite
 
-In this room, the viceroy can ponder the world, as you stroke your beard/pony tail. The is the largest room available and you will find much wisdom to be found, as you gaze out your bay facing window from within this stately corner room. Or if you tire of the sea, you can train your eyes on our sideyard, which is next to a highway (no, we don't mind. It's not that bad and it keeps the beasts at bay).
+In this room, masters of their domain may bask in the glow of peace and comfort of the large open space and numerous windows. This allows for effortless concentration for someone who needs to ponder the sublime and infinite. This furnished room has an office, dedicated seating/living area for entertaining your subjects, and a plush queen-sized bed as even the sultan has the humility to forgo what a king requires.
 
-There's plenty of closet space as well for your fine silks and ray bans.
+Bear in mind though that the furnishings in the room are for posterity and are best suited for someone who can arrive with an open mind and embrace this historic quarters. 
 
 ## About us
 
@@ -120,6 +120,12 @@ Ask for Jared's email
 Ask for Jared's address
 Ask for Jared's birthday
 Ask for Jared's name pronunciation
+
+### Mickey
+Mickey likes frisbees, robots, and long walks on the beach by our house.
+
+### Reno
+Reno, full time agent of Goldman Sachs, however secretly undercover to bring down the system. Builds drones while riding motorcycles, and has been occasionally known to breath fire. Also likes to chill.
 
 ### birds
 There're some birds living in the backyard. You have to be cool with them.
