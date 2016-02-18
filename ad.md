@@ -93,7 +93,7 @@ All of rooms in the house are equally nice, seriously. The only real difference 
 
 In this room, masters of their domain may bask in the glow of peace and comfort of the large open space and numerous windows. This allows for effortless concentration for someone who needs to ponder the sublime and infinite. This furnished room has an office, dedicated seating/living area for entertaining your subjects, and a plush queen-sized bed as even the sultan has the humility to forgo what a king requires.
 
-Bear in mind though that the furnishings in the room are for posterity and are best suited for someone who can arrive with an open mind and embrace this historic quarters. 
+Bear in mind though that the furnishings in the room are for posterity and are best suited for someone who can arrive with an open mind and embrace this historic quarters.
 
 ## About us
 
@@ -126,6 +126,9 @@ Mickey likes frisbees, robots, and long walks on the beach by our house.
 
 ### Reno
 Reno, full time agent of Goldman Sachs, however secretly undercover to bring down the system. Builds drones while riding motorcycles, and has been occasionally known to breath fire. Also likes to chill.
+
+### Emily
+Emily is pretty okay sometimes. She is 30 and moved to SF a couple of weeks ago for a marketing consulting gig. Originally from Denver, Emily likes running, coed sports, hiking and telling jokes that she thinks are funny. She works a 9-5 and likes to spend her free time exploring the city and spending time in wine country.
 
 ### birds
 There're some birds living in the backyard. You have to be cool with them.
