@@ -4,9 +4,9 @@ Hey you, glad you found this ad. My name is Larthur and I live at the house.
 It's that time of year where beaver tails are thumping, birds be chirping, and people come and go. Sadly, my roommate and I are moving out of our palatial room, on to more modest accommodations in the house, but what luck you have! This is a really lovely place, and we're all really happy, so we hope you like it as much as we do.
 
 **tl;dr**
-This room is the granddaddy of them all, the house is amazing, and we're "ok".
+This room is absolutely incredible, the house is amazing, and we're "ok".
 We have:
-* One extra-extra large room available March 1st.
+* One large room available April 1st.
 
 We are:
 * AOK
@@ -59,7 +59,7 @@ The house has a lot of space and really beautiful commons. You have to see it to
 
 #### Kitchen
 
-The kitchen's pretty cool. We have a lot of counter and cabinet space. Fridge space could be improved, but we have plans to get a second fridge. If you're into coffee, we have a pretty nice machine. Also, we use reusable lint-free towels instead of paper towels which is cool and it makes cleaning really easy.
+The kitchen's pretty cool. We have a lot of counter and cabinet space. We have TWO fridges!!! (Can you believe it?) If you're into coffee, we have a pretty nice machine. Also, we use reusable lint-free towels instead of paper towels which is cool and it makes cleaning really easy.
 
 Some of us cook every day, some of us not at all.
 
@@ -85,27 +85,21 @@ We have an amazing movie theater.
 
 We play everyday and everyone's pretty good.
 
-### Rooms available
+### Rooms available:
 
 All of rooms in the house are equally nice, seriously. The only real difference is price, for which you get space in exchange. Here's some extra info for your perusal. There are no pictures, but as you can imagine there are walls, windows and hardwood floor. They look like the rest of the house except smaller...
 
-#### The Sultan's Suite
+#### 1.) The Squire's Boudoir
 
-In this room, masters of their domain may bask in the glow of peace and comfort of the large open space and numerous windows. This allows for effortless concentration for someone who needs to ponder the sublime and infinite. This furnished room has an office, dedicated seating/living area for entertaining your subjects, and a plush queen-sized bed as even the sultan has the humility to forgo what a king requires.
+Many squires' songs have been written for heroes of old in this inspirational space. Due to its excellent location, the squire's boudoir arguable receives the most light in the house. It also has an excellent closet, capable of holding all of your master's armor with room left still for a large trunk of ointments and other embrocations.
 
-Bear in mind though that the furnishings in the room are for posterity and are best suited for someone who can arrive with an open mind and embrace this historic quarters.
-
-## About us
+## About (some of) us
 
 ### Larthur
 I'm in my mid twenties, a pretty chill dude, and I moved to SF about a year ago. I like the outdoors, playing music, sports, and, most of all, I like making things. I work a pretty regular schedule, about 9-5 M-F and when I'm at home I usually just relax and work on my little projects. Personally, I'm not super into partying at my house, but, ironically, I really enjoy throwing really good house parties. I guess I just want there to be good energy with the occasional fiesta experience.
 
 ### Sydney
-What's up party people.
-
-I've been living in bigger places with lots of people for a while now. I believe that guidelines in the style of "we are allowed to hang out this much but also must maintain this level of distance" or "you are only allowed to be home or to go out this often," though well-intentioned, can actually be harmful. I like my relationships with the people in my house to be simple in their lack of definition. We can easily create a caring community of independent individuals by having everyone do their own thing to whatever extreme that means for each person, drawing the line somewhere around "don't be a dick." I like it when my housemates and I can laugh together and not take everything (including ourselves) too seriously.
-
-About me as a human bean: if I were a bean, I would probably be the abandoned love child of a kidney bean and cannellini bean. I like music a lot and pay close attention to what rappers are up to via social media. I cook and bake frequently so there are goodies around (usually free of common allergens). I'm pretty into the fact that I live in a forest next to a beach. I work a few days a week at a restaurant. I have other interests too but will not list them here.
+Sydney wants to meet you.
 
 ### J-RAD
 (copied from his "about" section on facebook)
@@ -120,9 +114,6 @@ Ask for Jared's email
 Ask for Jared's address
 Ask for Jared's birthday
 Ask for Jared's name pronunciation
-
-### Mickey
-Mickey likes frisbees, robots, and long walks on the beach by our house.
 
 ### Reno
 Reno, full time agent of Goldman Sachs, however secretly undercover to bring down the system. Builds drones while riding motorcycles, and has been occasionally known to breath fire. Also likes to chill.
@@ -140,8 +131,10 @@ Be yourself! It can be so uninviting when you read these ads and people are all 
 Other than that, just be you :)
 
 ### Things you have to be ok with
+
 * There's a piano in the house.
 * Talking
+* Living with a lot of people
 
 ## What's next?
 
@@ -149,7 +142,7 @@ We're going to have an open house when it gets closer to the deadline. It would 
 
 ## FAQ
 Do you allow couples:
-- Maybe... best to try any way but don't get your hopes up.
+- Not at this point, sorry.
 
 Can I bring my pet:
 - Probably not, sorry, however also maybe... maybe bring your pet to the open house.
