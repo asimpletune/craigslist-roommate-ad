@@ -6,7 +6,7 @@ It's that time of year where beaver tails are thumping, birds be chirping, and p
 **tl;dr**
 This room is absolutely incredible, the house is amazing, and we're "ok".
 We have:
-* One large room available April 1st.
+* One large room available Oct 1st.
 
 We are:
 * AOK
@@ -89,9 +89,11 @@ We play everyday and everyone's pretty good.
 
 All of rooms in the house are equally nice, seriously. The only real difference is price, for which you get space in exchange. Here's some extra info for your perusal. There are no pictures, but as you can imagine there are walls, windows and hardwood floor. They look like the rest of the house except smaller...
 
-#### 1.) The Squire's Boudoir
+#### 1.) The Viceroy's Chamber
 
-Many squires' songs have been written for heroes of old in this inspirational space. Due to its excellent location, the squire's boudoir arguable receives the most light in the house. It also has an excellent closet, capable of holding all of your master's armor with room left still for a large trunk of ointments and other embrocations.
+ -In this room, the viceroy can ponder the world, as you stroke your beard/pony tail. The is one the largest rooms in the house and you will find much wisdom to be found, as you gaze out your bay facing window from within this stately corner room. Or if you tire of the sea, you can train your eyes on our sideyard, which is next to a highway (no, we don't mind. It's not that bad and it keeps the beasts at bay).
+
+ -There's plenty of closet space as well for your fine silks and ray bans.
 
 ## About (some of) us
 
@@ -101,25 +103,26 @@ I'm in my mid twenties, a pretty chill dude, and I moved to SF about a year ago.
 ### Sydney
 Sydney wants to meet you.
 
-### J-RAD
-(copied from his "about" section on facebook)
-About
-Ask for Jared's work info
-Ask for Jared's high school
-
-Lives in San Francisco, California
-No relationship info to show
-Ask for Jared's phone number
-Ask for Jared's email
-Ask for Jared's address
-Ask for Jared's birthday
-Ask for Jared's name pronunciation
-
 ### Reno
 Reno, full time agent of Goldman Sachs, however secretly undercover to bring down the system. Builds drones while riding motorcycles, and has been occasionally known to breath fire. Also likes to chill.
 
-### Emily
-Emily is pretty okay sometimes. She is 30 and moved to SF a couple of weeks ago for a marketing consulting gig. Originally from Denver, Emily likes running, coed sports, hiking and telling jokes that she thinks are funny. She works a 9-5 and likes to spend her free time exploring the city and spending time in wine country.
+### LUKE
+
+I like to kyte surf and golf cart.
+
+### Ahmed
+(copied from his "about" section on facebook)
+About
+Ask for Ahmed's work info
+Ask for Ahmed's high school
+
+Lives in San Francisco, California
+No relationship info to show
+Ask for Ahmed's phone number
+Ask for Ahmed's email
+Ask for Ahmed's address
+Ask for Ahmed's birthday
+Ask for Ahmed's name pronunciation
 
 ### birds
 There're some birds living in the backyard. You have to be cool with them.
