@@ -6,7 +6,7 @@ It's that time of year where beaver tails are thumping, birds be chirping, and p
 **tl;dr**
 This room is absolutely incredible, the house is amazing, and we're "ok".
 We have:
-* One large room available Oct 1st.
+* One Medium room with large closet and landing available Oct 1st.
 
 We are:
 * AOK
@@ -87,13 +87,15 @@ We play everyday and everyone's pretty good.
 
 ### Rooms available:
 
-All of rooms in the house are equally nice, seriously. The only real difference is price, for which you get space in exchange. Here's some extra info for your perusal. There are no pictures, but as you can imagine there are walls, windows and hardwood floor. They look like the rest of the house except smaller...
+All of rooms in the house are equally nice, seriously. The only real difference is price, for which you get space in exchange. Here's some extra info for your perusal. There are no pictures, but as you can imagine there are walls, windows and hardwood floor, with the exception of one room that has carpet. They look like the rest of the house except smaller...
 
-#### 1.) The Viceroy's Chamber
+#### 1.) Ali Baba's Secret Cove
 
- -In this room, the viceroy can ponder the world, as you stroke your beard/pony tail. The is one the largest rooms in the house and you will find much wisdom to be found, as you gaze out your bay facing window from within this stately corner room. Or if you tire of the sea, you can train your eyes on our sideyard, which is next to a highway (no, we don't mind. It's not that bad and it keeps the beasts at bay).
+ - Hidden away, high above on the 3rd floor of the house, lay the legendary Ali Baba's secret stash. You can swim in money here.
 
- -There's plenty of closet space as well for your fine silks and ray bans.
+ - There're two bathrooms adjacent, where you may take a bath with any dirty jewels you may have. Should your bathing require standing, there is a walk in shower as well with room for plenty of pillows.
+
+ - The closet is enormous, with an excess of space to store remedies, antidotes, and orbs.
 
 ## About (some of) us
 
