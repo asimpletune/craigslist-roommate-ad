@@ -4,9 +4,9 @@ Hey you, glad you found this ad. My name is Larthur and I live at the house.
 It's that time of year where beaver tails are thumping, birds be chirping, and people come and go. Sadly, my roommate and I are moving out of our palatial room, on to more modest accommodations in the house, but what luck you have! This is a really lovely place, and we're all really happy, so we hope you like it as much as we do.
 
 **tl;dr**
-This room is absolutely incredible, the house is amazing, and we're "ok".
+This room is the granddaddy of them all, the house is amazing, and we're "ok".
 We have:
-* One Medium room with large closet and landing available Oct 1st.
+* One extra-extra large room available October 31st or sooner.
 
 We are:
 * AOK
@@ -89,15 +89,13 @@ We play everyday and everyone's pretty good.
 
 All of rooms in the house are equally nice, seriously. The only real difference is price, for which you get space in exchange. Here's some extra info for your perusal. There are no pictures, but as you can imagine there are walls, windows and hardwood floor, with the exception of one room that has carpet. They look like the rest of the house except smaller...
 
-#### 1.) Ali Baba's Secret Cove
+#### The Sultan's Suite
 
- - Hidden away, high above on the 3rd floor of the house, lay the legendary Ali Baba's secret stash. You can swim in money here.
+In this room, masters of their domain may bask in the glow of peace and comfort of the large open space and numerous windows. This allows for effortless concentration for someone who needs to ponder the sublime and infinite. This furnished room has an office, dedicated seating/living area for entertaining your subjects, as even the sultan has the humility to forgo what a king requires.
 
- - There're two bathrooms adjacent, where you may take a bath with any dirty jewels you may have. Should your bathing require standing, there is a walk in shower as well with room for plenty of pillows.
+Bear in mind though that the furnishings in the room are for posterity and are best suited for someone who can arrive with an open mind and embrace this historic quarters. Basically, it comes furnished - minus a bed - but you don't have to keep it - though it is just slightly preferred.
 
- - The closet is enormous, with an excess of space to store remedies, antidotes, and orbs.
-
-## About (some of) us
+## About us
 
 ### Larthur
 I'm in my mid twenties, a pretty chill dude, and I moved to SF about a year ago. I like the outdoors, playing music, sports, and, most of all, I like making things. I work a pretty regular schedule, about 9-5 M-F and when I'm at home I usually just relax and work on my little projects. Personally, I'm not super into partying at my house, but, ironically, I really enjoy throwing really good house parties. I guess I just want there to be good energy with the occasional fiesta experience.
@@ -105,26 +103,29 @@ I'm in my mid twenties, a pretty chill dude, and I moved to SF about a year ago.
 ### Sydney
 Sydney wants to meet you.
 
+I've been living in bigger places with lots of people for a while now. I believe that guidelines in the style of "we are allowed to hang out this much but also must maintain this level of distance" or "you are only allowed to be home or to go out this often," though well-intentioned, can actually be harmful. I like my relationships with the people in my house to be simple in their lack of definition. We can easily create a caring community of independent individuals by having everyone do their own thing to whatever extreme that means for each person, drawing the line somewhere around "don't be a dick." I like it when my housemates and I can laugh together and not take everything (including ourselves) too seriously.
+
 ### Reno
+
 Reno, full time agent of Goldman Sachs, however secretly undercover to bring down the system. Builds drones while riding motorcycles, and has been occasionally known to breath fire. Also likes to chill.
 
 ### LUKE
 
-I like to kyte surf and golf cart.
+Like to kite surf and golf cart
 
-### Ahmed
+### Scott
 (copied from his "about" section on facebook)
 About
-Ask for Ahmed's work info
-Ask for Ahmed's high school
+Ask for Scott's work info
+Ask for Scott's high school
 
 Lives in San Francisco, California
 No relationship info to show
-Ask for Ahmed's phone number
-Ask for Ahmed's email
-Ask for Ahmed's address
-Ask for Ahmed's birthday
-Ask for Ahmed's name pronunciation
+Ask for Scott's phone number
+Ask for Scott's email
+Ask for Scott's address
+Ask for Scott's birthday
+Ask for Scott's name pronunciation
 
 ### birds
 There're some birds living in the backyard. You have to be cool with them.
@@ -136,10 +137,8 @@ Be yourself! It can be so uninviting when you read these ads and people are all 
 Other than that, just be you :)
 
 ### Things you have to be ok with
-
 * There's a piano in the house.
 * Talking
-* Living with a lot of people
 
 ## What's next?
 
