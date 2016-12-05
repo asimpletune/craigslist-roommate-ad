@@ -6,7 +6,7 @@ It's that time of year where beaver tails are thumping, birds be chirping, and p
 **tl;dr**
 This room is the granddaddy of them all, the house is amazing, and we're "ok".
 We have:
-* One extra-extra large room available October 31st or sooner.
+* One large room available December 1st or sooner.
 
 We are:
 * AOK
@@ -89,29 +89,27 @@ We play everyday and everyone's pretty good.
 
 All of rooms in the house are equally nice, seriously. The only real difference is price, for which you get space in exchange. Here's some extra info for your perusal. There are no pictures, but as you can imagine there are walls, windows and hardwood floor, with the exception of one room that has carpet. They look like the rest of the house except smaller...
 
-#### The Sultan's Suite
+#### 1.) The Squire's Boudoir
 
-In this room, masters of their domain may bask in the glow of peace and comfort of the large open space and numerous windows. This allows for effortless concentration for someone who needs to ponder the sublime and infinite. This furnished room has an office, dedicated seating/living area for entertaining your subjects, as even the sultan has the humility to forgo what a king requires.
-
-Bear in mind though that the furnishings in the room are for posterity and are best suited for someone who can arrive with an open mind and embrace this historic quarters. Basically, it comes furnished - minus a bed - but you don't have to keep it - though it is just slightly preferred.
+Many squires' songs have been written for heroes of old in this inspirational space. Due to its excellent location, the squire's boudoir arguable receives the most light in the house. It also has an excellent closet, capable of holding all of your master's armor with room left still for a large trunk of ointments and other embrocations.
 
 ## About us
 
 ### Larthur
 I'm in my mid twenties, a pretty chill dude, and I moved to SF about a year ago. I like the outdoors, playing music, sports, and, most of all, I like making things. I work a pretty regular schedule, about 9-5 M-F and when I'm at home I usually just relax and work on my little projects. Personally, I'm not super into partying at my house, but, ironically, I really enjoy throwing really good house parties. I guess I just want there to be good energy with the occasional fiesta experience.
 
-### Sydney
-Sydney wants to meet you.
+### Christy
+Christy wants to meet you.
 
-I've been living in bigger places with lots of people for a while now. I believe that guidelines in the style of "we are allowed to hang out this much but also must maintain this level of distance" or "you are only allowed to be home or to go out this often," though well-intentioned, can actually be harmful. I like my relationships with the people in my house to be simple in their lack of definition. We can easily create a caring community of independent individuals by having everyone do their own thing to whatever extreme that means for each person, drawing the line somewhere around "don't be a dick." I like it when my housemates and I can laugh together and not take everything (including ourselves) too seriously.
+Hi, I'm from West Virginia but I've lived in Sydney Australia before, mate! Give me a Foster's and we'll chill outback style.
 
 ### Reno
 
 Reno, full time agent of Goldman Sachs, however secretly undercover to bring down the system. Builds drones while riding motorcycles, and has been occasionally known to breath fire. Also likes to chill.
 
-### LUKE
+### SAM
 
-Like to kite surf and golf cart
+Sam is super cool and from Austin and builds tiny houses and you will like him trust me.
 
 ### Scott
 (copied from his "about" section on facebook)
@@ -149,4 +147,4 @@ Do you allow couples:
 - Not at this point, sorry.
 
 Can I bring my pet:
-- Probably not, sorry, however also maybe... maybe bring your pet to the open house.
+- Probably not, we already have one. Maybe bring your pet anyway though because maybe they're beyond awesome? That would be something we'd make an exception for.
