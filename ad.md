@@ -89,9 +89,9 @@ We play everyday and everyone's pretty good.
 
 All of rooms in the house are equally nice, seriously. The only real difference is price, for which you get space in exchange. Here's some extra info for your perusal. There are no pictures, but as you can imagine there are walls, windows and hardwood floor, with the exception of one room that has carpet. They look like the rest of the house except smaller...
 
-#### 1.) The Squire's Boudoir
+The Intern's Quarters
 
-Many squires' songs have been written for heroes of old in this inspirational space. Due to its excellent location, the squire's boudoir arguable receives the most light in the house. It also has an excellent closet, capable of holding all of your master's armor with room left still for a large trunk of ointments and other embrocations.
+Ah yes, in the fast-paced, ever-changing landscape of this modern error, what better place to get a start of this brave new world than in the intern's quarters? Spartan this room may be, with dimensions at around 8'x 15', nonetheless it is but a key to the kingdom of heaven that awaits in one's mind.
 
 ## About us
 
