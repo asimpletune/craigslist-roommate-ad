@@ -117,6 +117,8 @@ In this room, masters of their domain may bask in the glow of peace and comfort 
 
 ## About us
 
+As this will be a new house, adjacent to our current one, you should be introduced to the present cast:
+
 ### Larthur
 I'm in my mid twenties, a pretty chill dude, and I moved to SF about a year ago. I like the outdoors, playing music, sports, and, most of all, I like making things. I work a pretty regular schedule, about 9-5 M-F and when I'm at home I usually just relax and work on my little projects. Personally, I'm not super into partying at my house, but, ironically, I really enjoy throwing really good house parties. I guess I just want there to be good energy with the occasional fiesta experience.
 
@@ -146,6 +148,10 @@ Ask for Scott's email
 Ask for Scott's address
 Ask for Scott's birthday
 Ask for Scott's name pronunciation
+
+### Hoopie
+
+That is her real name.
 
 ### birds
 There're some birds living in the backyard. You have to be cool with them.
