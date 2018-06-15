@@ -1,12 +1,17 @@
 # Officer's house in the Presidio with "pretty" cool people
 Hey you, glad you found this ad. My name is Larthur and I live at the house.
 
-It's that time of year where beaver tails are thumping, birds be chirping, and people come and go. Sadly, my roommate and I are moving out of our palatial room, on to more modest accommodations in the house, but what luck you have! This is a really lovely place, and we're all really happy, so we hope you like it as much as we do.
+It's that time of year where beaver tails are thumping, birds be chirping, and people come and go. O great Fortuna! Our palatial abode is expanding! What luck you have! This is a really lovely place, and we're all really happy, so we hope you like it as much as we do.
 
 **tl;dr**
-This room is the granddaddy of them all, the house is amazing, and we're "ok".
-We have:
-* One large room available December 1st or sooner.
+This house is beyond amazing, and we're "ok".
+We have coming available July 1st or sooner:
+* One XL sized room (about 15' x 20')
+* One L sized room (about 15' x 15')
+* Two M sized rooms (about 13' 13')
+* An optional S sized room (about 15' x 8')
+
+There is much, more more... you really have to see this place to believe it.
 
 We are:
 * AOK
@@ -15,9 +20,10 @@ You are:
 * Yourself (hopefully)
 
 Open house:
-* TBD - email to schedule a viewing
+* TBD for this weekend (either 06/16, 06/17 or both - bring your dad if we end up coming on Sunday <3)
 
-Also, this place will go very quickly so please keep that in mind.
+What to do next?
+Also, this place will go very quickly so please keep that in mind. Express your interest by sending an email! Doesn't have to be crazy, you can read the "enhanced version of the ad" (down below), to learn what we're like. In terms of what we're looking for, just you! Be yourself!
 
 **Enhanced version of ad:**
 
@@ -79,7 +85,7 @@ This is a major chill zone. We have two of these mid-centch sofas and we chill h
 
 #### Cinema
 
-We have an amazing movie theater.
+We have an amazing movie theater. You wouldn't believe it...
 
 #### Ping-pong
 
@@ -89,9 +95,25 @@ We play everyday and everyone's pretty good.
 
 All of rooms in the house are equally nice, seriously. The only real difference is price, for which you get space in exchange. Here's some extra info for your perusal. There are no pictures, but as you can imagine there are walls, windows and hardwood floor, with the exception of one room that has carpet. They look like the rest of the house except smaller...
 
-The Intern's Quarters
+#### The Intern's Quarters (S sized)
 
 Ah yes, in the fast-paced, ever-changing landscape of this modern error, what better place to get a start of this brave new world than in the intern's quarters? Spartan this room may be, with dimensions at around 8'x 15', nonetheless it is but a key to the kingdom of heaven that awaits in one's mind.
+
+#### The Squire's Boudoir (M sized)
+
+Many squires' songs have been written for heroes of old in this inspirational space. Due to its excellent location, the squire's boudoir arguable receives the most light in the house. It also has an excellent closet, capable of holding all of your master's armor with room left still for a large trunk of ointments and other embrocations.
+
+#### The Despot's Spire (M sized)
+
+Way up amongst the highest tower of our castle, lies the DESPOT'S SPIRE!!! Here, situated on the 3rd floor of the house, you may contrive your ploys and plots, as you so love to do! Rest assured that you will have ample head space to weigh the pros and cons of your political calculus, as the Despot's Spire is more secluded than the other rooms.
+
+#### The Viceroy's Chamber (L sized)
+
+In this room, the viceroy can ponder the world, as you stroke your beard/pony tail. The is a large room available and you will find much wisdom to be found, as you gaze out your bay facing window from within this stately corner room. Or if you tire of the sea, you can train your eyes on our sideyard, which is next to a highway (no, we don't mind. It's not that bad and it keeps the beasts at bay).
+
+#### The Sultan's Suite (XL sized)
+
+In this room, masters of their domain may bask in the glow of peace and comfort of the large open space and numerous windows. This allows for effortless concentration for someone who needs to ponder the sublime and infinite. This furnished room has an office, dedicated seating/living area for entertaining your subjects, and a plush queen-sized bed as even the sultan has the humility to forgo what a king requires.
 
 ## About us
 
@@ -103,7 +125,7 @@ Christy wants to meet you.
 
 Hi, I'm from West Virginia but I've lived in Sydney Australia before, mate! Give me a Foster's and we'll chill outback style.
 
-### Reno
+### Boden
 
 Reno, full time agent of Goldman Sachs, however secretly undercover to bring down the system. Builds drones while riding motorcycles, and has been occasionally known to breath fire. Also likes to chill.
 
@@ -144,7 +166,7 @@ We're going to have an open house when it gets closer to the deadline. It would 
 
 ## FAQ
 Do you allow couples:
-- Not at this point, sorry.
+- It's a possibility. We'd love to provide people with a place where they can share their love, but there are complications associated with this. Let's discuss further.
 
 Can I bring my pet:
-- Probably not, we already have one. Maybe bring your pet anyway though because maybe they're beyond awesome? That would be something we'd make an exception for.
+- Yes! <3<3<3
