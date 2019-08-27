@@ -5,10 +5,7 @@ It's that time of year where beaver tails are thumping, birds be chirping, and p
 
 **tl;dr**
 This house is beyond amazing, and we're "ok".
-We have coming available July 1st or sooner:
-* One XL sized room (about 15' x 20')
-* One L sized room (about 15' x 15')
-* Two M sized rooms (about 13' 13')
+We have coming available September 1st:
 * An optional S sized room (about 15' x 8')
 
 There is much, more more... you really have to see this place to believe it.
@@ -20,7 +17,7 @@ You are:
 * Yourself (hopefully)
 
 Open house:
-* TBD for this weekend (either 06/16, 06/17 or both - bring your dad if we end up coming on Sunday <3)
+* TBD for this weekend (either 08/31, 09/01 or both - you can bring your dad if they're not dirt biking)
 
 What to do next?
 Also, this place will go very quickly so please keep that in mind. Express your interest by sending an email! Doesn't have to be crazy, you can read the "enhanced version of the ad" (down below), to learn what we're like. In terms of what we're looking for, just you! Be yourself!
@@ -37,7 +34,7 @@ The house has 3 floors, a basement, and a garage:
 ()()() ____________________________________________________()()()()()()()()()()()()()()(
 ()()(/******************************************************\()()()()()()()()()()()()()(
 ()()/********************************************************\()()()()()()()()()()()()()
-()(/****************PRESIDI(BROS)DENTS************************\()()()()()()()()()()()()(
+()(/****************PRESIDIDENTS******************************\()()()()()()()()()()()()(
 ()/************************************************************\()()()()()()()()()()()()
 ()++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++()()()()()()()()()()()()
 ()[******[*]****************************************[*]********]()()()()()()()()()()()()
@@ -48,7 +45,7 @@ The house has 3 floors, a basement, and a garage:
 ()[************************************************************]()()(/***GARAGE****\()()
 ()[************************************************************]()()+++++++++++++++++()(
 ()[***[*]******[*]******[*]****[*]********[*]******************]()()[***************]()(
-()[Kitchen | Bathroom | Living | Dining | Entranceway**********]()()[**Golf cart(s)*]()(
+()[Kitchen | Bathroom | Living | Dining | Entranceway**********]()()[Golf carts RIP*]()(
 ()[************************************************************]()()[***************]()(
 ()[++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++]()()+++++++++++++++++()(
 ()[********[*]*************************************************]()()()()()()()()()()()()
@@ -65,19 +62,19 @@ The house has a lot of space and really beautiful commons. You have to see it to
 
 #### Kitchen
 
-The kitchen's pretty cool. We have a lot of counter and cabinet space. We have TWO fridges!!! (Can you believe it?) If you're into coffee, we have a pretty nice machine. Also, we use reusable lint-free towels instead of paper towels which is cool and it makes cleaning really easy.
+The kitchen's pretty cool. We have a lot of counter and cabinet space. We have TWO fridges!!! (Can you believe it?) If you're into coffee then you can make some here. Also, you can make food. We use reusable lint-free towels instead of paper towels which is cool and it makes cleaning really easy.
 
 Some of us cook every day, some of us not at all.
 
-#### Living room
+#### Living/Music room
 
-This room is the "mid-centch" room. You better be a mid-centchual...
+This room used to be the "mid-centch" room. Now it's a little of that but also a creative music space. You can be a mid-centchual...
 
 But seriously, there's a lot of beauty in the commons space and people are always lounging about.
 
 #### Dining room
 
-It's like the living room but without as nice furniture. It also has table with chairs...
+It's like the living room but without as nice furniture. It also has table with chairs... It has become more mid-centch than what used to be the mid-centch room. It is a pleasing space that feels good to resipirate in.
 
 #### Back Porch
 
@@ -89,13 +86,13 @@ We have an amazing movie theater. You wouldn't believe it...
 
 #### Ping-pong
 
-We play everyday and everyone's pretty good.
+We no-longer play everyday. But if you wanted to revive this that's ok. Now I think other things are in vogue.
 
-### Rooms available:
+### Description of Rooms:
 
 All of rooms in the house are equally nice, seriously. The only real difference is price, for which you get space in exchange. Here's some extra info for your perusal. There are no pictures, but as you can imagine there are walls, windows and hardwood floor, with the exception of one room that has carpet. They look like the rest of the house except smaller...
 
-#### The Intern's Quarters (S sized)
+#### The Intern's Quarters (S sized) [THIS ONE IS VACANT]
 
 Ah yes, in the fast-paced, ever-changing landscape of this modern error, what better place to get a start of this brave new world than in the intern's quarters? Spartan this room may be, with dimensions at around 8'x 15', nonetheless it is but a key to the kingdom of heaven that awaits in one's mind.
 
@@ -117,48 +114,30 @@ In this room, masters of their domain may bask in the glow of peace and comfort 
 
 ## About us
 
-As this will be a new house, adjacent to our current one, you should be introduced to the present cast:
+This is a description of the people who currently live here.
 
 ### Larthur
-I'm in my mid twenties, a pretty chill dude, and I moved to SF about a year ago. I like the outdoors, playing music, sports, and, most of all, I like making things. I work a pretty regular schedule, about 9-5 M-F and when I'm at home I usually just relax and work on my little projects. Personally, I'm not super into partying at my house, but, ironically, I really enjoy throwing really good house parties. I guess I just want there to be good energy with the occasional fiesta experience.
 
-### Christy
-Christy wants to meet you.
+I am a relaxed person who likes to spend their time on creative endeavors like working on little projects.
 
-Hi, I'm from West Virginia but I've lived in Sydney Australia before, mate! Give me a Foster's and we'll chill outback style.
+### Nikita
 
-### Boden
+Nikita has a fanatical following stemming from his one-time involvement in the production of Romeo & Juliet, where he starred a Romeo. There are no videos on YouTube interviewing him about how he learned how to sword fight to choreograph the scenes.
 
-Reno, full time agent of Goldman Sachs, however secretly undercover to bring down the system. Builds drones while riding motorcycles, and has been occasionally known to breath fire. Also likes to chill.
+### Clara
 
-### SAM
+Clara shunned the limelight at the peak of her child acting career to instead be smart and good at stuff. She now works at a really smart tech company and is not a tool. In fact, she spends most of her time being a totally normal person, if normal people spent their time shredding gnar and sucking the bone marrow out of life.
 
-Sam is super cool and from Austin and builds tiny houses and you will like him trust me.
+### Charlotte
 
-### Scott
-(copied from his "about" section on facebook)
-About
-Ask for Scott's work info
-Ask for Scott's high school
-
-Lives in San Francisco, California
-No relationship info to show
-Ask for Scott's phone number
-Ask for Scott's email
-Ask for Scott's address
-Ask for Scott's birthday
-Ask for Scott's name pronunciation
-
-### Hoopie
-
-That is her real name.
+Charlotte rules and everyone else drools. She also has a dog named Toast, who does not drool - actually. She is super fun and playful, but also serious and good at cleaning. Carbon based, homeostasis a must.
 
 ### birds
 There're some birds living in the backyard. You have to be cool with them.
 
 ## About you
 
-Be yourself! It can be so uninviting when you read these ads and people are all like "You need to be in this field and have this gender and these interests and hang out all the time or keep to yourself and you can't use this room etc..." No. I hate that. What I care about is that you're open minded and that's about it. I'm not trying to create the master race here. I'd much rather just let individual people's own personalities mix, and if an issue comes up, then we settle it. So part of being open minded is being communicative too. Basically, I don't want to control the experience. Instead, I want to be like a gardner: let the experience grow, but keep an eye for any weeds (drama queens, emotional vampires, close-mindedness, etc...)
+Be yourself! It can be so uninviting when you read these ads and people are all like "You need to be in this field and have this gender and these interests and hang out all the time or keep to yourself and you can't use this room etc..." No. I hate that. What I care about is that you're open minded and that's about it. I'm not trying to create the master race here. I'd much rather just let individual people's own personalities mix, and if an issue comes up, then we settle it. So part of being open minded is being communicative too. Basically, I don't want to control the experience. Instead, I want to be like a gardener: let the experience grow, but keep an eye for any weeds (drama queens, emotional vampires, close-mindedness, etc...)
 
 Other than that, just be you :)
 
@@ -172,7 +151,12 @@ We're going to have an open house when it gets closer to the deadline. It would 
 
 ## FAQ
 Do you allow couples:
-- It's a possibility. We'd love to provide people with a place where they can share their love, but there are complications associated with this. Let's discuss further.
+- Generally, yes, but this room is too small for a couple, and there are currently no couples living here.
 
 Can I bring my pet:
-- Yes! <3<3<3
+- No, unfortunately.
+
+Parking/Commuting options:
+- We don't have anymore parking passes, however we there is a lot of free parking at your own risk. The risk is a $50 ticket approximately every 6mo.
+- There is also a neighborhood shuttle that goes directly downtown in about 20 min. This is good if you work downtown.
+- Generally speaking, this is NOT the middle of downtown San Francisco. In fact, it is never downtown San Francisco. So, if being super close to everything is important to you then you will not like living here. To be perfectly honest, this is the kind of place for people who having a happy home is the most important thing to them. Or people with cars and are fine not having a pass, or being next in line for one :)

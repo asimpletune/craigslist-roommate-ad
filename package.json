@@ -1,6 +1,7 @@
 {
   "name": "kobbe-house-ad",
   "version": "0.0.1",
+  "repository": "git@github.com:asimpletune/craigslist-roommate-ad.git",
   "description": "Project for making roommate ads at our house.",
   "dependencies": {
     "markdown-to-html": "^0.0.11"
