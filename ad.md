@@ -5,8 +5,8 @@ It's that time of year where beaver tails are thumping, birds be chirping, and p
 
 **tl;dr**
 This house is beyond amazing, and we're "ok".
-We have coming available September 1st:
-* An optional S sized room (about 15' x 8')
+We have coming available November 1st or earlier:
+* A HUGE room (about 15' x 20') - seriously it's like a mansion, within a mansion
 
 There is much, more more... you really have to see this place to believe it.
 
@@ -16,8 +16,9 @@ We are:
 You are:
 * Yourself (hopefully)
 
-Open house:
-* TBD for this weekend (either 08/31, 09/01 or both - you can bring your dad if they're not dirt biking)
+See the house:
+* By appointment OR
+* Come to our open house Sunday, 01/12
 
 What to do next?
 Also, this place will go very quickly so please keep that in mind. Express your interest by sending an email! Doesn't have to be crazy, you can read the "enhanced version of the ad" (down below), to learn what we're like. In terms of what we're looking for, just you! Be yourself!
@@ -28,11 +29,11 @@ Also, this place will go very quickly so please keep that in mind. Express your 
 The Presidio is a former military base/mission turned national park. Located at the at the foot of the Golden Gate bridge in San Francisco, the Presidio is one of the few places you can live in the city, where it doesn't feel like you're living in the city. Imagine beverly hills country club meets redwood tree forests, all bordered by rocky cliffs crumbling into sandy beaches by the ocean.
 
 ### Blueprint
-The house has 3 floors, a basement, and a garage. See ascii art image for more details on floorplan. 
+The house has 3 floors, a basement, and a garage. See ascii art image for more details on floorplan.
 
 ### Second floor Bathroom
 
-There are 4 bathrooms in the house. This is one of them. No, you don't have to use this. I just wanted to show it to you. The others are equally nice. We all share, and there has never been a shortage of bathrooms.
+There are 4 bathrooms in the house. We all share, and there has never been a shortage of bathrooms.
 
 ### Common areas of note
 The house has a lot of space and really beautiful commons. You have to see it to fully appreciate it but here's a preview.
@@ -69,7 +70,7 @@ We no-longer play everyday. But if you wanted to revive this that's ok. Now I th
 
 All of rooms in the house are equally nice, seriously. The only real difference is price, for which you get space in exchange. Here's some extra info for your perusal. There are no pictures, but as you can imagine there are walls, windows and hardwood floor, with the exception of one room that has carpet. They look like the rest of the house except smaller...
 
-#### The Intern's Quarters (S sized) [THIS ONE IS VACANT]
+#### The Intern's Quarters (S sized)
 
 Ah yes, in the fast-paced, ever-changing landscape of this modern error, what better place to get a start of this brave new world than in the intern's quarters? Spartan this room may be, with dimensions at around 8'x 15', nonetheless it is but a key to the kingdom of heaven that awaits in one's mind.
 
@@ -85,7 +86,7 @@ Way up amongst the highest tower of our castle, lies the DESPOT'S SPIRE!!! Here,
 
 In this room, the viceroy can ponder the world, as you stroke your beard/pony tail. The is a large room available and you will find much wisdom to be found, as you gaze out your bay facing window from within this stately corner room. Or if you tire of the sea, you can train your eyes on our sideyard, which is next to a highway (no, we don't mind. It's not that bad and it keeps the beasts at bay).
 
-#### The Sultan's Suite (XL sized)
+#### The Sultan's Suite (XL sized) THIS ROOM IS VACANT!!!
 
 In this room, masters of their domain may bask in the glow of peace and comfort of the large open space and numerous windows. This allows for effortless concentration for someone who needs to ponder the sublime and infinite. This furnished room has an office, dedicated seating/living area for entertaining your subjects, and a plush queen-sized bed as even the sultan has the humility to forgo what a king requires.
 
@@ -101,13 +102,13 @@ I am a relaxed person who likes to spend their time on creative endeavors like w
 
 Nikita has a fanatical following stemming from his one-time involvement in the production of Romeo & Juliet, where he starred a Romeo. There are no videos on YouTube interviewing him about how he learned how to sword fight to choreograph the scenes.
 
-### Clara
-
-Clara shunned the limelight at the peak of her child acting career to instead be smart and good at stuff. She now works at a really smart tech company and is not a tool. In fact, she spends most of her time being a totally normal person, if normal people spent their time shredding gnar and sucking the bone marrow out of life.
-
 ### Charlotte
 
 Charlotte rules and everyone else drools. She also has a dog named Toast, who does not drool - actually. She is super fun and playful, but also serious and good at cleaning. Carbon based, homeostasis a must.
+
+### Ryan
+
+Ryan is zen. Feel his peace. Now let it get. Breath Ryan in, breath Ryan out. 
 
 ### birds
 There're some birds living in the backyard. You have to be cool with them.
@@ -128,12 +129,12 @@ We're going to have an open house when it gets closer to the deadline. It would 
 
 ## FAQ
 Do you allow couples:
-- Generally, yes, but this room is too small for a couple, and there are currently no couples living here.
+- Yes!
 
 Can I bring my pet:
-- No, unfortunately.
+- Maybe, but probably not. Let's see your pet first but set your expectations!
 
 Parking/Commuting options:
-- We don't have anymore parking passes, however we there is a lot of free parking at your own risk. The risk is a $50 ticket approximately every 6mo.
+- We have tons of paid parking! There's a monthly pass for ~$30/mo, or you can risk it and get a ticket maybe once a year?
 - There is also a neighborhood shuttle that goes directly downtown in about 20 min. This is good if you work downtown.
-- Generally speaking, this is NOT the middle of downtown San Francisco. In fact, it is never downtown San Francisco. So, if being super close to everything is important to you then you will not like living here. To be perfectly honest, this is the kind of place for people who having a happy home is the most important thing to them. Or people with cars and are fine not having a pass, or being next in line for one :)
+- Generally speaking, this is NOT the middle of downtown San Francisco. In fact, it is never downtown San Francisco. So, if being super close to everything is important to you then you will not like living here. To be perfectly honest, this is the kind of place for people who having a happy home is the most important thing to them. Also, this place is good for people who value having a car and go on lots of weekend trips to Tahoe or something like that. Presidio rules!!!
